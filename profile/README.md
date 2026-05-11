@@ -1,4 +1,4 @@
-## stopwatch studio
+## Stopwatch Games Studio
 ### goated creatives
 - ngl too many for me
 ### good games
